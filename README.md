@@ -1,3 +1,5 @@
 Talat Zehra Ali
-email: alita@oregonstate.edu
+alita@oregonstate.edu
 purple
+14
+Cold Play
